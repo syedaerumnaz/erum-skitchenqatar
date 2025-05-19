@@ -1,2 +1,2 @@
 # erum-skitchenqatar
-it is a hommebased biryani business 
+it is a homebased biryani business 
